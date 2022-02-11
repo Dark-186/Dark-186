@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LineexHub
+- 👋 Hi, I’m @Linodzn
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Programming languages
 - 📫 How to reach me - Discord: Lineex#5924
